@@ -1,0 +1,53 @@
+# ブルーマンデーFM – Freedom
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I’m not rich
+I’m not a witch
+I just work from 9 to 5
+No need to worry
+Don’t feel so sorry
+I love hearing my favorite tunes
+Jazz & Bossa Nova
+Electronica
+When I feel that
+It’s good enough
+I want more, I want more
+I just want more
+Freedom! Freedom! Freedom!
+Life is full of wonderful things
+Be moved! Be moved! Be moved!
+Open your eyes, open your heart
+The world’s so beautiful
+I’m not slim
+I don’t trim
+I wear the clothes
+Make me feel so fine
+This is my story in my own glory
+I love watching
+My Favorite films
+Action & Adventure
+Love & Romantica
+When I feel that
+It’s good enough
+I want more, I want more
+I just want more
+Feel good! Feel good! Feel good!
+I will go out
+With wonderful dreams
+Be moved! Be moved! Be moved!
+Open your eyes, open your heart
+The world’s so beautiful
+All birds are
+Singing for you night & day
+Oh! All of your dreams
+Will come true
+If you're always
+True to yourself
+Freedom! Freedom! Freedom!
+Life is full of wonderful things
+Be moved! Be moved! Be moved!
+Open your eyes, open your heart
+The world’s so beautiful
+```
